@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on idk?
 - 📫 How to reach me: msg me here 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: idk lol
+- ⚡ Fun fact: I can drift like they do in Tokio
 
 <!---
 xWiktorrr/xWiktorrr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
